@@ -5,7 +5,7 @@
 - 💞️ Spirit Animal: Mantis shrimp, Fav color: white
 - 📫 How to reach me: aileeexy@proton.me (probably won't reply, why are you reading this anyway)
 - 😄 Pronouns: any/all
-- ⚡ Fun fact: You are currently supporting 500KG of air. Most camels live in Australia. The inventor of the Pringles can is buried in one. 
+- ⚡ Fun fact: You are currently supporting 500KG of air. Most camels live in Australia. Sharks are older than the North star and the rings of Saturn.
 
 <!---
 nahmaida/nahmaida is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
